@@ -2,3 +2,4 @@
 Esto lo agregó Lorenzo!
 Esto lo agregó Noelia Valle! :)
 Esto lo agregó Noelia Valle
+Esto lo agregó Braian durante el encuentro
